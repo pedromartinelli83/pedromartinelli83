@@ -13,7 +13,7 @@ Bem vindo ao perfil de Pedro Martinelli 👋
  
  <br>
  
-  ### Minhas redes sociais
+  ### Meus Contatos
  
 <div> 
   
